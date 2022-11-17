@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-###### Here are some ideas to get you started:
+###### Here are the things you need to know about me:
 
 ###### Full name - Kyle Clarence G. Sia
 ###### Year Level - 3rd year CpE Student
